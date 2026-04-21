@@ -18,7 +18,10 @@
 
 ## Excerpt
 
-> [Clean lyric will be pushed here]
+> يا عايش في عيوني وساكن دمي
+> نار الشوق تحرق كل همي
+> أنت الغرام وأنت سر الوجود
+> حبك كسر في قلبي كل القيود
 > ...
 
 📄 **[View Full Lyrics →](./lyrics.txt)**
